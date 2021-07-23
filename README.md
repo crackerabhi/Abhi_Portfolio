@@ -1,3 +1,3 @@
 
 
-### (https://jsmasterypro.com/)
+### [https://jsmasterypro.com/]
